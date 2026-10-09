@@ -1,2 +1,1 @@
-<img width="1191" height="896" alt="ddone9r" src="https://github.com/user-attachments/assets/01fafb33-4636-42d1-b9f7-4b7d37451aa7" />
-
+<img width="626" height="476" alt="asdsa" src="https://github.com/user-attachments/assets/086c9a65-876b-4b96-8874-c2daf8c56192" />
